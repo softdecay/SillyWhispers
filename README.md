@@ -1,38 +1,52 @@
 
 # HEYAA(˶˃𐃷˂˶)
-<img width="1229" height="1315" alt="1000028953" src="https://github.com/user-attachments/assets/2c2a5951-d70b-4bef-a4dc-e2ec1b1a9b06" />
+ <img width="2047" height="906" alt="Tumblr_l_770595022522757" src="https://github.com/user-attachments/assets/dc6ba600-f863-4f1c-bd14-07bd941671ab" />
 
 
-**Me if you tried to run away from me:3**
 
-` Yes.. I am a fan of jesterᐠ( ᐛ )ᐟ a no. 1 fan>:3!! `
+` 𝑬c𝒉𖹭 o𝒇 𝒂 st𝒂𝒓! `
 
-` c+h freely!! i may be offtab sometimes(~‾▿‾)~.. hehe.. `
 
-` i would love to be ur friend/bff>:3!! `
+<img width="2000" height="200" alt="Tumblr_l_770646639500862" src="https://github.com/user-attachments/assets/f77c9926-ffc2-4809-ad6f-26964d17c025" />
 
-` online at discord 24/7:D,cuz i luv chatting
- and calls!! `
 
-![1000028949](https://github.com/user-attachments/assets/d38e1ae8-18e6-4c21-9010-7bb1ad47e52e)
+` to find me in ponytown , always go to tfc area or near the lobby ^^ ` 
 
-**ABOUT ME!!**
 
-> ` "Pansexual and Transgender!!" `
-*Jester hvy KIN* (ノ^_^)ノ
+`, i always hangout with my lovely friends in that area! `
+
+
+<img width="736" height="248" alt="Tumblr_l_770441541300940" src="https://github.com/user-attachments/assets/f896efac-4e8e-418e-b593-e925d5cf40b6" />
+
+
+           ` 我爱我的朋友们!! `
+
+
+<img width="100" height="100" alt="Tumblr_l_770556504955011" src="https://github.com/user-attachments/assets/82909151-89de-46b7-b697-94d4959ea83c" />
+
+
+**just so yk!!**
+
+
+> ` "Pansexual !!" `
+
+*𝑭o𝒓 𝒚𖹭u , 𝒊 bl𝒆e𝒅!* (ノ^_^)ノ
 
 ` attachment issues:p `
 
 
 ` "You are perfect just the way you are my dear..." `
 
+<img width="1920" height="469" alt="Tumblr_l_770672531621529" src="https://github.com/user-attachments/assets/a81d198f-e1e0-45e0-a048-9ecde9323c38" />
+
+
 ---
-> ### " And I know where to look. "
-> — *TV Girl*
+> ### " stalk ur socials. "
+> — *s0rrow*
 ---
 
 <details>
-<summary><b> 👇 CLICK FOR MY SOCIALS </b></summary>
+<summary><b> 🪽 CLICK FOR MY SOCIALS </b></summary>
 <br>
 
 - **Discord:** ` _chenzz.ay `
