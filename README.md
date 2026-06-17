@@ -34,6 +34,9 @@
 
 ` attachment issues:p `
 
+` 我的名字叫陈！但是中国人叫我轩！`
+
+` 有些朋友以为我不是中国人，因为我们第一次见面时我忘了提这件事！! `
 
 ` "You are perfect just the way you are my dear..." `
 
